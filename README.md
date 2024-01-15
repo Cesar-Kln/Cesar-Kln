@@ -5,12 +5,4 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on Buisness tu connais
-- 🌱 I’m currently learning le kung fu
-- 👯 I’m looking to collaborate on des habits avec Rick Owens
-- 🤔 I’m looking for help with github
-- 💬 Ask me about Drip
-- 📫 How to reach me: tu m'appelles frrot
-- 😄 Pronouns: il
-- ⚡ Fun fact
--->
+Yo yo l'asticot cv les chefs oklm la famille les amis la santé toujours frrot 
